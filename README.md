@@ -1,4 +1,4 @@
--A man of focus, commitment, sheer will, something you know very litte about.
+A man of focus, commitment, sheer will, something you know very litte about.
 
 
 <!---
